@@ -1,2 +1,3 @@
 # i-gotta-believe
-Idk
+test
+lammy better than parappa (i dont hate parappaujhhgjj..)
